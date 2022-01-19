@@ -2,7 +2,7 @@
 
 
 khadyjh Alabbadi Software engineering 24 years old livs in Al-salt 
-graduated in 3/2021 wants to be andoid developar its my dream to .  
+graduated in 3/2021 wants to be andoid developar its my dream too .  
 
 ---
 # [article](https://www.freecodecamp.org/news/learn-the-fundamentals-of-a-good-developer-mindset-in-15-minutes-81321ab8a682/)
